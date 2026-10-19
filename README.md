@@ -1,0 +1,1 @@
+# Local-AI-Clipboard-Translator-
